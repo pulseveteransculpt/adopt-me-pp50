@@ -1,4 +1,4 @@
-
+elite Scripts for adopt me is the best adopt me Script, featuring god mode and invisibility. Safe and powerful for all your needs.
 
 
 
